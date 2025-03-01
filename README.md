@@ -1,2 +1,4 @@
 # lscs_spring25
 as;dlfkja;sldkfja;sdlfia stuff
+
+uiju7h6ygt5r43ew2fafoiwoijroieoihwirbiriurwirwtiuhgrhuirihuuitrgiruhtgiruthgrtiurtuhrworitughoritughwroiguhwrotgiurwtogiuhwtogiurwtogiuergoieruthgoertiugheriughertogiuerhgoiurhgoeritu
